@@ -1,0 +1,1 @@
+# Responsive-Multipage-Education-School-Websites![screencapture-file-D-full-stack-developer-Task-T12-index-html-2023-03-02-13_26_06](https://user-images.githubusercontent.com/121854064/222367623-6efc5b22-f83c-4fae-9a6c-92c88f00edc9.png)
